@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me amirbalti50@gmail.com
 - 😄 Pronouns: ali
-- ⚡ Fun fact: prople person
+- ⚡ Fun fact: people person
 - 
 
 <!---
